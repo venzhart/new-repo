@@ -1,1 +1,1 @@
-"world cup"
+"world cup and EURO"
